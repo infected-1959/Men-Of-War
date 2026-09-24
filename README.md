@@ -210,4 +210,4 @@ Men of War is offered as a complete free version, fully unlocked with all featur
 Download Men of War today and immerse yourself in one of the best WWII strategy games available! Don’t miss out on this official free download for Windows!
 
 ---
-**Last updated:** 2026-09-24 13:07:05 UTC
+**Last updated:** 2026-09-24 18:03:29 UTC
